@@ -1,2 +1,2 @@
 # Opal
-Opal crack
+Cracked inless than 10 minutes
